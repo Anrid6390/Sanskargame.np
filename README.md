@@ -1,1 +1,1 @@
-# Sanskargame
+# Sanskarlamogame
